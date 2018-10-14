@@ -1,1 +1,0 @@
-# Pyton-Egitimi-Mucit-Park
